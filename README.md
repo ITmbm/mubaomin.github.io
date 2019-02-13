@@ -1,0 +1,2 @@
+# mubaomin.github.io
+view
